@@ -1,0 +1,2 @@
+# ZYB
+ZYB Is the meme protocol from the Odin public chain, with a total supply of 100 billion. It refers to the role-playing anime, as well as the ZYB project initiated by ancient characters and Chinese and foreign mythological characters, which is very popular with people all over the world. The token ZYB, ZYB force anchor Odin, give away the Odin address users, we believe that the benefits to the people, the people will help us, when a million addresses, we are likely to listed on the secondary market, while using Odin and Zyb deal right.
